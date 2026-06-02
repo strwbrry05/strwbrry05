@@ -1,5 +1,5 @@
 # Hello!...
-I'm @hebibi19! Nice to meet you! :3
+I'm @strwbrry05 / Jacqueline Molina.
 Here are some cool, interesting facts about me!
 
 
@@ -17,8 +17,8 @@ Here are some cool, interesting facts about me!
 
 
 ## Where To Reach Me:
-Portfolio: https://hebibi19.github.io/
 
 LinkedIn: https://www.linkedin.com/in/molinajq19/
+Email: molina.jq19@gmail.com
 
 ## Bye! Bye! 🍓 
